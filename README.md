@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @Iamy35.
+- 👀 I’m interested in coding, playing games and making digital arts for fun.
+- 🌱 I’m currently learning C# in coding, german in language.
+- 💞️ I’m looking forward to finding a cool job for me to design people's wishes.
+- 📫 How to reach me: with my e-mail or instagram : maniacaslifetillmig
+- Hello, my name is Amy. I am a newbie here. I am looking forward to learning to code well and finding a cool job which makes or designs people's wishes.
+- I am a very big gamer, I spent my free/spare time gaming and making digital art.
+- If I get bored of doing them, I will learn German or practise my language skills.
